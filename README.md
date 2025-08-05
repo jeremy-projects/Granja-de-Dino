@@ -11,3 +11,5 @@ a medida que transcurre el tiempo, sucederán cada vez ocurrencias más bizarras
 y escalofriantes.
 
 ![Copilot_20250604_213908](https://github.com/user-attachments/assets/b708e696-4cc0-4074-bb17-aaf63a066b6b)
+
+itch.io: https://jeremy-projects.itch.io/la-granja-de-dino
